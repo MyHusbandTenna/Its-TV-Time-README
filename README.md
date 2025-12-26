@@ -4,7 +4,9 @@ Hello from PonyTown!
 
 ♡》You can call me Batty/Bugs/Rem — or anything really. I'm 21+. She/Her. I'm really only on the SS2, but I'll occasionally pop in to SS1.
 
-♡》I often have DNI, but ultimately please int with EXTREME CAUTION. I get nervous very easily and sometimes when I make new friends I immediately skitter away because I get so anxious. I am sorry ahead of time! /gen
+♡》I often have DNI, but ultimately please int with EXTREME CAUTION. I get nervous very easily and sometimes when I make new friends I immediately skitter away because I get so anxious. I'm sorry ahead of time! /gen
+
+♡》Please whisper to int! Especially because often I get distracted! But I also have my chat range very low (to around 3/5 spaces so I'm not overwhelmed!)
 
 ♡》Please don't copy my ponies; ask for inspo!
 
