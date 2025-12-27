@@ -1,6 +1,7 @@
 # Its-TV-Time-README
 <img width="736" height="736" alt="Untitled142" src="https://github.com/user-attachments/assets/029c6237-4980-4625-a57f-ffc34c599dc2" />
 Hello from PonyTown!
+ps. Please stop harassing me for boundaries and opinions that do not hurt anyone! ^^"
 
 ♡》You can call me Batty/Bugs/Rem — or anything really. I'm 21+. She/Her. I'm really only on the SS2, but I'll occasionally pop in to SS1.
 
