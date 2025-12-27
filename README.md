@@ -4,7 +4,7 @@ Hello from PonyTown!
 ps. Please stop harassing me for boundaries and opinions that do not hurt anyone! ^^"
 
 
-To clarify: My hatred for Spamtenna comes from my bad experience with it! I've ran into pairs who shipped Spamtenna and they were being very fetishist and gross about it–even before I got into UT/DR. I'm glad you all got a laugh out of my boundaries and brought some of you together, but please do leave me alone ^^"
+To clarify: My hatred for Spamtenna comes from my bad experience with it! I've ran into pairs who shipped Spamtenna and they were being very fetishist and gross about it–even before I got into UT/DR. I'm glad you all got a laugh out of my boundaries and brought some of you together, but please do leave me alone. It's hateful and cruel. ^^"
 
 ♡》You can call me Batty/Bugs/Rem — or anything really. I'm 21+. She/Her. I'm really only on the SS2, but I'll occasionally pop in to SS1.
 
@@ -29,6 +29,8 @@ Some extra DNI(s)/info:
 ♤》I have and do block any Tenna/Spamton ponies I see, it's nothing against the person I just am deranged and these two goobers are important to me! (And most, as previously stated, are Spamtenna ships 💔)
 
 **FANDOM DNI(S):**
+
+¡》 UT/DR
 
 ¡》Hazbin Hotel/Helluva Boss
 
